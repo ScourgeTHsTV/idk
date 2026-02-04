@@ -1,11 +1,4 @@
-<img width="244" height="207" alt="image" src="https://github.com/user-attachments/assets/1caf20ce-b76c-4c5a-b300-74a5a72c9c2f" />
-
-me gusta uhhhhh,., queso???? idk i dont speak spanish
-
-I DID IT TWIN 
-
-IM A TV
-
-SELF-PACED addict >>
-
-![PACE](https://github.com/user-attachments/assets/f6d19acf-78ca-40df-b426-b59d206b0008)
+<div align=center>
+<img src="https://readme-typing-svg.demolab.com?font=Fontdiner+Swanky&size=23&pause=1000&color=5345c2&center=true&vCenter=true&width=435&lines=MY+NAME+IS+PACE-!!;IM+REALLY+SCARED+RIGHT+NOW..!!"
+  
+![PACE](https://github.com/user-attachments/assets/c1544b25-acdd-434b-863d-ef0c938c5dda)
