@@ -5,3 +5,7 @@ me gusta uhhhhh,., queso???? idk i dont speak spanish
 I DID IT TWIN 
 
 IM A TV
+
+SELF-PACED addict >>
+
+![PACE](https://github.com/user-attachments/assets/f6d19acf-78ca-40df-b426-b59d206b0008)
